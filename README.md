@@ -1,6 +1,8 @@
-# group-question
-Frieadam fenta  uur02093/16.
+
+Frieadam fenta  uur02093/16.  
+
  Natnael guta   uur01662/16
+ 
 we weren't class because we had special class mid test,and we did the assignment.
 # WINDOW PROGRAMMING – GROUP ASSIGNMENT
 
